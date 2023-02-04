@@ -1,5 +1,10 @@
 ### Hi everyone 👋
 
+**Tutorial Killer**
+
+I have killed so many tutorial templates after I made so many edits and deletions. While the tutorials are killing me, I have killed my tutorial templates many times over. Let me provide you with an emoji timeline that matches my experience :confused: :angry: :persevere: :rage: :scream: :tired_face: :sob:
+
+I like . . . :laughing:
 <!--
 **a-blind-squirrel/a-blind-squirrel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
