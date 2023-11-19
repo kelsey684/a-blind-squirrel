@@ -28,7 +28,7 @@ I like . . . :laughing:
 
 Here are some ideas to get you started:
 -->
-What did I learn? It is still communication that is our largest barrier to overcome. Communication can clarify and resolve problems sooner, without it we are poorer.
+What did I learn? I was reminded that communication can make work smoother by resolving problems quickly.
 
 . . . end of journal entry Spring 2023
 
